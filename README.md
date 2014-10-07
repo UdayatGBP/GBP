@@ -1,0 +1,4 @@
+GBP
+===
+
+FOR GBP
